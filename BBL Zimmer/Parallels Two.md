@@ -1601,7 +1601,7 @@ I was shocked.
 “Hol you are sixty three feet right now. There isn’t anyone or any living thing on the planet that wouldn’t look up to you”  
 “Then I guess what I am saying is that I want to be a goddess….”  
   
-August 2006  
+##August 2006  
   
 My exams were over and what spare time I had was spent visiting Holly who had moved into the new facility.   
   

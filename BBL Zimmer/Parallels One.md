@@ -2993,7 +2993,7 @@ I gulped realizing her train of thought, could a man like me really be used like
 “You know my new size is going to make escaping here even harder”  
 “Mmm, you’re right but maybe if I lifted you up high you could climb the rest of the wall?”ZIMMER   
     
-##jun 2006 cont...  
+##June 2006 cont...  
   
 It was worth a try and suddenly she whisked me skywards at the full stretch of her long limb and my stomach flipped out it was like being rocked propelled into the air some seventy feet high in less than a second!  
 “yeeahh! Carina, slow down, man that was fast”  
